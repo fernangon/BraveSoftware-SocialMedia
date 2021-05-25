@@ -1,6 +1,6 @@
 Take a look to this Social Media icons board.
 
-It is animated. 
+It is animated. :+1:
 
 You can use it free in your web projects!
 
